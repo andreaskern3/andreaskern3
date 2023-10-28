@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @andreaskern3
-- 👀 I’m interested in Basic
+- 👀 I’m interested in Basic (Amstrad Basic,Commodore Basic) 
 - 🌱 I’m currently learning with angry on PC
 - 💞️ I’m looking to collaborate on 
 - 📫 How can they reach me ...I guess they can´t,I guess they won´t,I guess they frontin´,that´s wy I know my life is out of luck,fool !!!
